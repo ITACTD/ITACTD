@@ -7,4 +7,5 @@
  my [info](https://rentry.co/MICK178/)&nbsp;&nbsp; ig ‎
 
 <details>
-<summary> (⁔• ༝ •⁔  ྀི)з</summary> i feel like im mickey you guys  ,,, ???no just me oh okay 
+<summary> (⁔• ༝ •⁔  ྀི)з</summary> iwc 
+don't use fonts when talking 2 me. 
