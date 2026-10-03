@@ -1,11 +1,10 @@
 <div align="center">
 
- gif of mickey here use ur imagination ,, idk how to use gifs on gh yet @_@ 
 
- LANE  c/h freely  iwc
+i go by lane  c/h freely 
  
- my [info](https://rentry.co/MICK178/)&nbsp;&nbsp; ig ‎
-
+ my [info](https://rentry.co/MICK178/)&nbsp;&nbsp; ‎
 <details>
-<summary> (⁔• ༝ •⁔  ྀི)з</summary> iwc 
-don't use fonts when talking 2 me. 
+<summary> (⁔• ༝ •⁔  ྀི)з</summary> 
+donot force me 2 talk with you. i'm mostly quiet and i don't choose 2 speak in game 
+i mostly just observe and rather spectate. 
